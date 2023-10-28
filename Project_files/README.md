@@ -25,6 +25,6 @@ Google Drive link for the Brand Promo video - https://drive.google.com/file/d/17
 
 Instagram account link: https://www.instagram.com/nuvogue13
 
-Instagram Promo video link: https://www.instagram.com/reel/Cy82Pz2NP57/? igshid=MTc4MmM1YmI2Ng%3D%3D
+Instagram Promo video link: https://www.instagram.com/reel/Cy82Pz2NP57/?%20igshid=MTc4MmM1YmI2Ng%3D%3D
 
 
