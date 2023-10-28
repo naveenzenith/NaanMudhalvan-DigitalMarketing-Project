@@ -1,8 +1,16 @@
 naanmudhalvan_digital-marketing
 
-NuVogue Clothing Brand
+Brand Name:NuVogue
 
-Google business Gmail  ID: nuvogue2023@gmail.com
+Category: Clothing Brand
+
+Target Audience: All (Men, Women and Kids)
+
+Video Script : Corporate Video - About, Product Feature, Teams, and Contact
+
+File Upload - Canva Promo Video
+
+Google business Gmail ID: nuvogue2023@gmail.com
 
 Instagram Professional account: nuvogue13
 
