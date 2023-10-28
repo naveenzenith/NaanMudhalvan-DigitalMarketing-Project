@@ -1,8 +1,16 @@
 naanmudhalvan_digital-marketing
 
-NuVogue Clothing Brand
+Brand Name:NuVogue
 
-Google business Gmail  ID: nuvogu2023@gmail.com
+Category: Clothing Brand
+
+Target Audience: All (Men, Women and Kids) 
+
+Video Script : Corporate Video - About, Product Feature, Teams, and Contact
+
+File Upload - Canva Promo Video (60 sec)
+
+Google business Gmail  ID: nuvogue2023@gmail.com
 
 Instagram Professional account: nuvogue13
 
@@ -13,7 +21,7 @@ Logo and Collection: BE YOU edition tees
 1. Neutral Hues
 2. Chromatic Hues
 
-Google Drive link for the Brand Promo video -https://drive.google.com/file/d/17QA5HzZ8AWm03ZP_jxqiEioQm46990ex/view?usp=drive_link
+Google Drive link for the Brand Promo video - https://drive.google.com/file/d/17QA5HzZ8AWm03ZP_jxqiEioQm46990ex/view?usp=drive_link
 
 Instagram account link: https://www.instagram.com/nuvogue13
 
