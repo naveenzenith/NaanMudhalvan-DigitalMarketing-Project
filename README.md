@@ -2,7 +2,7 @@ naanmudhalvan_digital-marketing
 
 NuVogue Clothing Brand
 
-Google business Gmail  ID: nuvogu2023@gmail.com
+Google business Gmail  ID: nuvogue2023@gmail.com
 
 Instagram Professional account: nuvogue13
 
